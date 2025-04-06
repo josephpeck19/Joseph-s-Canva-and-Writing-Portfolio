@@ -1,1 +1,1 @@
-Hi! Welcome to my writing portfolio, this contains some of the work I have done over my first 2 years in Singapore Management Univserity. It showcases my writing ability not only in formal academic formats but also elevator pitches and blog style opinion pieces.
+Hi! Welcome to my writing portfolio, this contains some of the work I have done over my first 2 years in Singapore Management Univserity. It showcases my writing ability not only in formal academic formats but also elevator pitches and blog style opinion pieces. Please click on the Writing Portfolio.zip and click
